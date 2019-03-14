@@ -1,2 +1,2 @@
-Create new file for mucic
+Create new file for music
 
